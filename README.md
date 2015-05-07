@@ -1,2 +1,2 @@
 # Students
-Mostly for College Students
+This repository is made for how can we utilize the vast abundance of human knowledge-gathering, and knowledge-workers of academia as well. If you're in college, does your major or minor contribute to making a free world, and remediating the damage done? How can the plethora of disciplines include free world as part of their vocabulary and direction to go? Which are good majors to pick? We should make a folder for different departments here. If you're in a graduate level program, are you associated with a department that's open to the idea? Let's utilize and build the hive brain or, as the pleiadians say, the library of living light.
